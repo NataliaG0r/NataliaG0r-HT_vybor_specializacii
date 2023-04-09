@@ -1,0 +1,1 @@
+# NataliaG0r-HT_vybor_specializacii
